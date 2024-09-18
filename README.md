@@ -1,5 +1,5 @@
 <center><h1><a href="https://ankarayuzmedersi.com.tr/">BİREBİR ÖZEL YÜZME DERSİ HAKKINDA BİLGİ ALMAK İÇİN TIKLAYINIZ.</a></h1></center>
-
+ 
 
 Yüzme, hem fiziksel hem de zihinsel sağlığımız için büyük öneme sahip bir spor dalıdır. Günümüzde, özellikle çocuklar için yüzme öğrenmek, hayat kurtarıcı bir beceri olmasının yanı sıra, sağlıklı bir yaşam tarzının da temelini oluşturur. Eryaman’da bulunan yüzme kursları, bu beceriyi kazanmak isteyen herkes için ideal bir ortam sunmaktadır.
 
