@@ -3,7 +3,7 @@
 
 Yüzme, hem fiziksel hem de zihinsel sağlığımız için büyük öneme sahip bir spor dalıdır. Günümüzde, özellikle çocuklar için yüzme öğrenmek, hayat kurtarıcı bir beceri olmasının yanı sıra, sağlıklı bir yaşam tarzının da temelini oluşturur. Eryaman’da bulunan yüzme kursları, bu beceriyi kazanmak isteyen herkes için ideal bir ortam sunmaktadır.
 
-<a>Eryaman yüzme kursu</a>, uzman eğitmenler eşliğinde sunduğu programlarla dikkat çekiyor. Bu kurslar, her yaştan katılımcıya hitap eden farklı seviyelerde dersler içermektedir. Başlangıç seviyesindeki çocuklardan, profesyonel yüzücülere kadar herkesin kendine uygun bir program bulması mümkün. Eğitmenler, öğrencilerin ihtiyaçlarına göre bireysel yaklaşımlar geliştirerek, yüzme becerilerini en hızlı ve etkili şekilde geliştirmelerine yardımcı olmaktadır.
+<b>Eryaman yüzme kursu</b>, uzman eğitmenler eşliğinde sunduğu programlarla dikkat çekiyor. Bu kurslar, her yaştan katılımcıya hitap eden farklı seviyelerde dersler içermektedir. Başlangıç seviyesindeki çocuklardan, profesyonel yüzücülere kadar herkesin kendine uygun bir program bulması mümkün. Eğitmenler, öğrencilerin ihtiyaçlarına göre bireysel yaklaşımlar geliştirerek, yüzme becerilerini en hızlı ve etkili şekilde geliştirmelerine yardımcı olmaktadır.
 
 Yüzme, kardiyovasküler sağlığı artırmanın yanı sıra, kas ve eklem sağlığını da olumlu etkiler. Eryaman yüzme kursu, bu sağlık yararlarını göz önünde bulundurarak, ders programlarını düzenlemektedir. Su, vücudu destekleyici bir ortam sunduğundan, yüzme sırasında yapılan egzersizler, diğer spor dallarına göre daha az yaralanma riski taşır. Özellikle çocuklar için yüzme, motor becerilerin gelişmesine ve fiziksel aktivite alışkanlığının kazanılmasına yardımcı olur.
 
