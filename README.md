@@ -1,3 +1,5 @@
+<head> <meta name="google-site-verification" content="xKptwhVrIT8yj7voaFsMxRqH6YiCYemvvNplqLjUX7A" /> </head>
+
 <center><h1><a href="https://ankarayuzmedersi.com.tr/">BİREBİR ÖZEL YÜZME DERSİ HAKKINDA BİLGİ ALMAK İÇİN TIKLAYINIZ.</a></h1></center>
  
 
